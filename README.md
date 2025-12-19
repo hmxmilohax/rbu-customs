@@ -15,6 +15,5 @@ Authority Zero - No Regrets
 
 It's Only Connor - help, the sillies are after me!1!!!1
 
-### DD, Professor Bass
-
-Drake - Take Care
+### DD
+Drake - Take Care (originally charted by Professor Bass)
